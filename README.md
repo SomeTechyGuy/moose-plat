@@ -7,9 +7,9 @@ My youtube is @frank's youtube channel! and i hope you guys enjoy!
 
 I might upload devlogs and stuff on there so check that out.
 
-Its hard to program lol. If i dont update consitantly then thats on me. I dont have a schedule so i may not realase consistant updates. Please dont harass me. 
+Its hard to program lol. If i dont update consitantly then thats on me. I dont have a schedule so i may not realase consistant updates. Please do not harass me. 
 
-
+also I am macking this open sorce so I engage you guys to make mods and fan games.
 
 
 
